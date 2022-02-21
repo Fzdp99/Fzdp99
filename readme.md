@@ -4,8 +4,9 @@
 	<br>
 </div>
 
-Follow me on Instagram! [@_fatwazuhri](https://www.instagram.com/_fatwazuhri/)
-Do you need help?
-contact me here: fatwazuhricyhuy99@gmail.com
+Follow me :
+🚗 Instagram! [@_fatwazuhri](https://www.instagram.com/_fatwazuhri/)
+🚓 Youtube! [Fatwa Zuhri](https://www.youtube.com/channel/UCbFhv9dY6tOZRvCn2Z1G7ng)
 
-Check out our game, [Brickadia](https://brickadia.com)!
+Do you need help?/n
+contact me here: fatwazuhricyhuy99@gmail.com
